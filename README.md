@@ -5,7 +5,7 @@
 
 *Valentina Ochoa* - [GitHub](https://github.com/vochoaa)
 
-*Brigith Giraldo* - [GitHub]()
+*Brigith Giraldo* - [GitHub](https://github.com/BrigithGiraldo)
 
 *Holmer Ortega* - [GitHub](https://github.com/Ortegago3)
 
